@@ -1,4 +1,4 @@
-## André Rørvik 👋
+## ⚡André Rørvik⚡
 
 **`Digital Craftsman`**
 
